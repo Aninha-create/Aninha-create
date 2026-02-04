@@ -2,7 +2,7 @@
 - 👀 I’m interested in tecnologias...
 - 🌱 I’m currently learning programação.
 - 💞️ I’m looking to collaborate on algo que me torne útil...
-- 📫 How to reach me anasophiaerajh@gmail.com
+- 📫 How to reach me    anasophiaerajh@gmail.com
 - 😄 Pronouns: Ela!!!
 - ⚡ Fun fact: Gosto dos desafios de lógicas em matemática. 
 
