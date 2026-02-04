@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programação.
 - 💞️ I’m looking to collaborate on algo que me torne útil...
 - 📫 anasophiaerajh@gmail.com
-- 😄 Pronouns: Ela!!!
+- 😄 Pronouns: Ela!
 - ⚡ Fun fact: Gosto dos desafios de lógicas em matemática. 
 
 <!---
